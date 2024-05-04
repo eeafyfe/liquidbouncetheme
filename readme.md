@@ -1,1 +1,1 @@
-lb vape v4 theme
+lb vape theme
